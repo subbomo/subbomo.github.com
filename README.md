@@ -1,1 +1,0 @@
-# subbomo.github.com
